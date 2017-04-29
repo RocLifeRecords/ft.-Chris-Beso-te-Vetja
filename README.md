@@ -9,3 +9,6 @@ Beso te Vetja (ft. Chris)                        DenyD                        3:
 Beso te Vetja (DenyD song)
 
 "Beso te Vetja" is a 2015 single by Albanian pop/rapper, taken from his first album, also entitled Beso te Vetja, released in 2015. The single it is a patriotic song, of course the use of it have many varied personal and commercial reasons. The song is created for the situations implied resulting and constructive.
+LABELS: ALBUM ELECTRONIC POP POP FOLK RAP SONG
+LOCATION: ΑΘΉΝΑ, ΕΛΛΆΔΑ
+https://youtu.be/0alwCw9Bkzw
